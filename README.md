@@ -26,21 +26,12 @@ On 4 September 2015, O'Connor self-released his debut mixtape Bcos U Will Never 
 **2017–2018: Apricot Princess**
 O'Connor's first release following the success of Apricot Princess and Flower Boy was on 11 October 2017 with the single "Loving Is Easy", created in collaboration with the Dutch artist Benny Sings. On 16 April 2018, he performed the song in his television debut on The Tonight Show Starring Jimmy Fallon. On 31 May 2018, he released a cover of "You've Got a Friend in Me" in collaboration with Randy Newman, the creator of the song.[16] He was also featured in Spotify's Rise Program.
 
-[Apricot Princess]
-
-
-
  
 
 **2018–2020: Pony**
 On 14 February 2019, O'Connor released the single "New House". Later that year on 12 September, he released "10/10"; the lead single from his second album Pony. Released on 25 October 2019, Pony was his first major-label album release through RCA Records. Review aggregator Metacritic gave the album a rating of 76/100 based on 11 professional reviews.
 
-[Pony]
 
-
-
-
- 
 On 30 September 2020, O'Connor released an EP with recordings from his performance at Radio City Music Hall in New York City during his Pony tour titled Live at Radio City Music Hall alongside a documentary released on YouTube. This documentary showed the events leading up to this performance as well as the early conclusion of the Pony tour due to the COVID-19 pandemic.
 
 
@@ -48,12 +39,10 @@ On 30 September 2020, O'Connor released an EP with recordings from his performan
 **2020-present: Who Cares?**
 In October 2020, O'Connor confirmed that he was in the process of recording a third studio album titled Who Cares?. In January 2021, he liked a Tweet seemingly confirming that it would be released at some point later that year. However, this did not materialise. On 13 January 2022, he began officially teasing the album, sending out postcards containing a phone number that when called, a snippet of a song would play. The album was released on 11 March 2022, and was his first to top the UK Albums Chart, entering ahead of Impera by Ghost.
 
-[Who Cares?]
-
-
-
 In July 2022, O'Connor cancelled tour dates in Australia, New Zealand and Europe due to "unforeseen personal circumstances".[25]
 
 As of September 2023, O'Connor has begun tour dates in Australia, New Zealand, Indonesia, Malaysia, Taiwan, The Philippines and Singapore
 
+<div class="embed-spotify-list">
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/artist/7pbDxGE6nQSZVfiFdq9lOL?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
