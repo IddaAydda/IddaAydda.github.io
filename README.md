@@ -2,7 +2,7 @@
 Edda Romelle T. Basilla
 
 # REX ORANGE COUNTY
-![REX ORANGE COUNTY](https://dailytrojan.com/wp-content/uploads/2020/01/RexOrangeCountyShrine_011020_JamesWolfe_E002-824x1030.jpg)
+![REX ORANGE COUNTY](https://i.pinimg.com/564x/b5/72/b1/b572b1af691f7ccec61f3985af65223f.jpg)
 
 *Rex Orange County a singer and a song writer*
 
