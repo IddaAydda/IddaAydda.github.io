@@ -33,12 +33,24 @@ On 14 February 2019, O'Connor released the single "New House". Later that year o
 
 ![Pony](https://upload.wikimedia.org/wikipedia/en/9/95/Rex_Orange_County_-_Pony.png)
 
+
+<div class="embed-spotify-list">
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/5CNckxfLf4TCoMOoxgAU8l?utm_source=generator&theme=0" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+
+ 
 On 30 September 2020, O'Connor released an EP with recordings from his performance at Radio City Music Hall in New York City during his Pony tour titled Live at Radio City Music Hall alongside a documentary released on YouTube. This documentary showed the events leading up to this performance as well as the early conclusion of the Pony tour due to the COVID-19 pandemic.
 
 **2020–present**: Who Cares?
 In October 2020, O'Connor confirmed that he was in the process of recording a third studio album titled Who Cares?. In January 2021, he liked a Tweet seemingly confirming that it would be released at some point later that year. However, this did not materialise. On 13 January 2022, he began officially teasing the album, sending out postcards containing a phone number that when called, a snippet of a song would play. The album was released on 11 March 2022, and was his first to top the UK Albums Chart, entering ahead of Impera by Ghost.
 
 ![Who Cares?](https://upload.wikimedia.org/wikipedia/en/b/b2/Rex_Orange_County_-_Who_Cares%3F.png)
+
+
+<div class="embed-spotify-list">
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/2yI4m5Yu2tl8v0It5P9WVz?utm_source=generator&theme=0" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+
 
 In July 2022, O'Connor cancelled tour dates in Australia, New Zealand and Europe due to "unforeseen personal circumstances".[25]
 
