@@ -33,13 +33,13 @@ O'Connor's first release following the success of Apricot Princess and Flower Bo
 
  
 
-**2018-2020: Pony**
+**2018–2020: Pony**
 On 14 February 2019, O'Connor released the single "New House". Later that year on 12 September, he released "10/10"; the lead single from his second album Pony. Released on 25 October 2019, Pony was his first major-label album release through RCA Records. Review aggregator Metacritic gave the album a rating of 76/100 based on 11 professional reviews.
 
 [Pony]
 
 <div class="embed-spotify-list">
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/5CNckxfLf4TCoMOoxgAU8l?utm_source=generator&theme=0" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+ <iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/5CNckxfLf4TCoMOoxgAU8l?utm_source=generator&theme=0" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 
  
