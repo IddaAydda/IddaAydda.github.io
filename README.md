@@ -20,7 +20,7 @@ On 4 September 2015, O'Connor self-released his debut mixtape Bcos U Will Never 
 O'Connor's first release following the success of Apricot Princess and Flower Boy was on 11 October 2017 with the single "Loving Is Easy", created in collaboration with the Dutch artist Benny Sings. On 16 April 2018, he performed the song in his television debut on The Tonight Show Starring Jimmy Fallon. On 31 May 2018, he released a cover of "You've Got a Friend in Me" in collaboration with Randy Newman, the creator of the song.[16] He was also featured in Spotify's Rise Program.
 
 
-![Apricot Princess](https://upload.wikimedia.org/wikipedia/en/0/03/Apricot_Princess.jpg)
+![Apricot Princess]
 
 
 <div class="embed-spotify-list">
@@ -31,7 +31,7 @@ O'Connor's first release following the success of Apricot Princess and Flower Bo
 **2019–2020: Pony**
 On 14 February 2019, O'Connor released the single "New House". Later that year on 12 September, he released "10/10"; the lead single from his second album Pony. Released on 25 October 2019, Pony was his first major-label album release through RCA Records. Review aggregator Metacritic gave the album a rating of 76/100 based on 11 professional reviews.
 
-![Pony](https://upload.wikimedia.org/wikipedia/en/9/95/Rex_Orange_County_-_Pony.png)
+![Pony]
 
 
 <div class="embed-spotify-list">
@@ -44,7 +44,7 @@ On 30 September 2020, O'Connor released an EP with recordings from his performan
 **2020–present: Who Cares?**
 In October 2020, O'Connor confirmed that he was in the process of recording a third studio album titled Who Cares?. In January 2021, he liked a Tweet seemingly confirming that it would be released at some point later that year. However, this did not materialise. On 13 January 2022, he began officially teasing the album, sending out postcards containing a phone number that when called, a snippet of a song would play. The album was released on 11 March 2022, and was his first to top the UK Albums Chart, entering ahead of Impera by Ghost.
 
-![Who Cares?](https://upload.wikimedia.org/wikipedia/en/b/b2/Rex_Orange_County_-_Who_Cares%3F.png)
+![Who Cares?]
 
 
 <div class="embed-spotify-list">
