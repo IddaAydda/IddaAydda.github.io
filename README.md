@@ -16,7 +16,7 @@ At age 16, O'Connor began playing the guitar and started to produce his own musi
 
 On 4 September 2015, O'Connor self-released his debut mixtape Bcos U Will Never B Free on SoundCloud and Bandcamp. Upon listening to the album, fellow English musician and producer Two Inch Punch got in touch with him, providing him with a management team. The two have continued to collaborate throughout O'Connor's career in the form of the tracks "UNO", "Best Friend", and "Untitled". The album also caught the attention of American rapper Tyler, the Creator, who sent him an email describing his enjoyment of the project. This led to him flying O'Connor out the following year to Los Angeles to collaborate on his album Flower Boy, with him co-writing and contributing vocals to the songs "Boredom" and "Foreword". On 17 November 2016, O'Connor released the single "UNO", a song Clash magazine described by writing, "The buoyant keyboard riff underpins a hypnotic half-spoken vocal, one that veers from topic to topic in a hazy burst of creative mania." On 25 January 2017, he released the single "Best Friend" (premiering on Apple Music's Beats 1 station), followed later in the year by the release of his debut studio album Apricot Princess. His work was compared by Aimee Cliff of The Fader in 2017 to "other artsy, post-genre teen artists, such as Kevin Abstract or Steve Lacy". 
 
-**2017–2018**: Apricot Princess
+**2017–2018: Apricot Princess**
 O'Connor's first release following the success of Apricot Princess and Flower Boy was on 11 October 2017 with the single "Loving Is Easy", created in collaboration with the Dutch artist Benny Sings. On 16 April 2018, he performed the song in his television debut on The Tonight Show Starring Jimmy Fallon. On 31 May 2018, he released a cover of "You've Got a Friend in Me" in collaboration with Randy Newman, the creator of the song.[16] He was also featured in Spotify's Rise Program.
 
 
@@ -28,7 +28,7 @@ O'Connor's first release following the success of Apricot Princess and Flower Bo
 
  
 
-**2019–2020**: Pony
+**2019–2020: Pony**
 On 14 February 2019, O'Connor released the single "New House". Later that year on 12 September, he released "10/10"; the lead single from his second album Pony. Released on 25 October 2019, Pony was his first major-label album release through RCA Records. Review aggregator Metacritic gave the album a rating of 76/100 based on 11 professional reviews.
 
 ![Pony](https://upload.wikimedia.org/wikipedia/en/9/95/Rex_Orange_County_-_Pony.png)
@@ -41,7 +41,7 @@ On 14 February 2019, O'Connor released the single "New House". Later that year o
  
 On 30 September 2020, O'Connor released an EP with recordings from his performance at Radio City Music Hall in New York City during his Pony tour titled Live at Radio City Music Hall alongside a documentary released on YouTube. This documentary showed the events leading up to this performance as well as the early conclusion of the Pony tour due to the COVID-19 pandemic.
 
-**2020–present**: Who Cares?
+**2020–present: Who Cares?**
 In October 2020, O'Connor confirmed that he was in the process of recording a third studio album titled Who Cares?. In January 2021, he liked a Tweet seemingly confirming that it would be released at some point later that year. However, this did not materialise. On 13 January 2022, he began officially teasing the album, sending out postcards containing a phone number that when called, a snippet of a song would play. The album was released on 11 March 2022, and was his first to top the UK Albums Chart, entering ahead of Impera by Ghost.
 
 ![Who Cares?](https://upload.wikimedia.org/wikipedia/en/b/b2/Rex_Orange_County_-_Who_Cares%3F.png)
