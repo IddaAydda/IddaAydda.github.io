@@ -50,3 +50,6 @@ As of September 2023, O'Connor has begun tour dates in Australia, New Zealand, I
 <div class="embed-spotify-list">
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/artist/7pbDxGE6nQSZVfiFdq9lOL?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
+
+[Instagram Account](https://www.instagram.com/rexorangecounty/?utm_source=ig_web_button_share_sheet&igshid=YzAwZjE1ZTI0Zg==.com)
+
