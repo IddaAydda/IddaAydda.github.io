@@ -41,8 +41,10 @@ On 14 February 2019, O'Connor released the single "New House". Later that year o
  
 On 30 September 2020, O'Connor released an EP with recordings from his performance at Radio City Music Hall in New York City during his Pony tour titled Live at Radio City Music Hall alongside a documentary released on YouTube. This documentary showed the events leading up to this performance as well as the early conclusion of the Pony tour due to the COVID-19 pandemic.
 
+
 **2020–present: Who Cares?**
 In October 2020, O'Connor confirmed that he was in the process of recording a third studio album titled Who Cares?. In January 2021, he liked a Tweet seemingly confirming that it would be released at some point later that year. However, this did not materialise. On 13 January 2022, he began officially teasing the album, sending out postcards containing a phone number that when called, a snippet of a song would play. The album was released on 11 March 2022, and was his first to top the UK Albums Chart, entering ahead of Impera by Ghost.
+
 
 ![Who Cares?]
 
