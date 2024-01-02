@@ -43,7 +43,7 @@ In October 2020, O'Connor confirmed that he was in the process of recording a th
 
 ![Who Cares?](https://i.pinimg.com/564x/4d/5a/0d/4d5a0d317b956e3778510933a57e9f1d.jpg)
 
-In July 2022, O'Connor cancelled tour dates in Australia, New Zealand and Europe due to "unforeseen personal circumstances".[25]
+In July 2022, O'Connor cancelled tour dates in Australia, New Zealand and Europe due to "unforeseen personal circumstances".
 
 As of September 2023, O'Connor has begun tour dates in Australia, New Zealand, Indonesia, Malaysia, Taiwan, The Philippines and Singapore
 
